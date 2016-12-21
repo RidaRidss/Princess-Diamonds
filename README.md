@@ -1,3 +1,3 @@
 # Princess-Diamonds
 
-***http://princessdiamonds.net/ ***
+***http://princessdiamonds.net/***
